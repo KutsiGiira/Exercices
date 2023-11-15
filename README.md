@@ -1,1 +1,1 @@
-Some exercices I solved 
+Some exercises I solved 
